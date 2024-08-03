@@ -1,2 +1,2 @@
 
-![46742e300b027ca9f655b25f9ff05680](https://github.com/4thgem/4thgem/assets/163659735/116918b4-963c-4082-93c3-228584d7e1e1)
+![11744974_38350](https://github.com/user-attachments/assets/1f833610-91a0-47af-a89e-9596121e1c87)
